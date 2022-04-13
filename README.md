@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Amer 
+- 👀 I’m interested in learning new things and broaden my knowldge in coding and electronics 
+- 🌱 I’m currently learning electronics and information engineering 
+- 📫 you can reach me by my email aamer.majed@yahoo.com
